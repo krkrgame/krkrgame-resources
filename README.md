@@ -40,28 +40,32 @@
 [【汉化】双子洛丽塔后宫](https://pan.baidu.com/s/1euofuTHItjRyXvCIzOg2Ng)  <br>
 [与我恋爱的废材小恶魔](https://pan.baidu.com/s/1b5E2MszxaDFX2MZ6btc6jA)  <br>
 [【汉化】春音Alice＊Gram](https://pan.baidu.com/s/1PxcTlE94e0mr8-NyBA2CoA)  <br>
+[【官中】NEKOPARA Extra](https://pan.baidu.com/s/1cBQ2Mxu-4XP8F7Wvh-eR0g)  <br>
+[【汉化】爱莉娅嘉年华](https://pan.baidu.com/s/1B0Lz78d2p9o5IqJjH5ST8A)  <br>
+[【官中】女友与我的恋爱日常（体验版）](https://pan.baidu.com/s/1K5cU--kWC6fjIg-dGfAvUA)  <br>
+[【官中】GRISAIA Phantom Trigger Vol.1](https://pan.baidu.com/s/1314s8nzrz7Hhvn7kPZO3Gg)  <br>
+[【官中】GRISAIA Phantom Trigger Vol.2](https://pan.baidu.com/s/1VsjPa5jqAUqLRePaHIcGqQ)  <br>
+[【官中】KARAKARA2](https://pan.baidu.com/s/1fffDleuPbafwpwWgcvtkgQ)  <br>
+
+
+## 生肉部分
 [きゃらぶれーしょん！～乙女は恋してキャラぶれる～](https://pan.baidu.com/s/1_ox_qkzZp2et0JSCBp5SEA)  <br>
-[爱莉娅嘉年华](https://pan.baidu.com/s/1B0Lz78d2p9o5IqJjH5ST8A)  <br>
 [ひとつ屋根の、ツバサの下で](https://pan.baidu.com/s/144Wwvf7Jb3y4aAN9iuIevw)  <br>
 [恋と魔法と管理人 ～運命の歯車編～](https://pan.baidu.com/s/1Hc4K2_MQ422NG4X5-okA7Q)  <br>
 [毎日がハーレムすぎて王子（おれ）は姫（ヨメ）を決められないっ！](https://pan.baidu.com/s/1VHU8ThY7652_7JTw4Ma2EQ)  <br>
 [恋愛教室](https://pan.baidu.com/s/18iivIzRtvLlWP6i2gdLVHQ)  <br>
 [手垢塗れの堕天使](https://pan.baidu.com/s/1KBevOqY64QNMtaG53T8ihA)  <br>
 [RiddleJoker](https://pan.baidu.com/s/1rlNT40fKxH8Md7photRV1A)  <br>
-[DeepOne体验版](https://pan.baidu.com/s/1mJlZUaja64jreK0LSBJvOA)  <br>
 [あやかしコントラクト](https://pan.baidu.com/s/1MUksVlJyAbH9LEK1nXqriA)  <br>
 [ボクの××は寮生たちの特権です！](https://pan.baidu.com/s/1z8WvrEGrVy8Oy7UxNcPLvw)  <br>
 [BUKKAKE！](https://pan.baidu.com/s/14GLolUZsXcboSBZUjNJttQ)  <br>
 [恋春アドレセンス](https://pan.baidu.com/s/1Mk2rMdi1o7pYore2BX29lg)  <br>
 [青い空のカミュ](https://pan.baidu.com/s/162VPu_q2HQpqLbsqVrMAhw)  <br>
 [勇者と魔王と、魔女のカフェ](https://pan.baidu.com/s/1xIqurS9H73wIgG7mLRG1Yw)  <br>
-[きゃらぶれーしょん！体验版](https://pan.baidu.com/s/1GvzBsTz73xXqw7FXeLEIgg)  <br>
 [少女と年の差、ふたまわり](https://pan.baidu.com/s/1i4BUhyqKXhDRXzJ_l8-hmQ)  <br>
-[青い空のカミュ 体验版](https://pan.baidu.com/s/1j35Y_d1uUVy_s9r1ulxxeg)  <br>
 [手垢塗れの復讐](https://pan.baidu.com/s/1BTVVxcONbTpfWk8m1Cx8fg)  <br>
 [聖騎士Melty☆Lovers](https://pan.baidu.com/s/1vj0vJpRLpY8SXvLlwejUHw)  <br>
 [ふれるてラブコネクト](https://pan.baidu.com/s/1XavDqOvgv8RE89rMxZVvWA)  <br>
-[恋ニ、甘味ヲソエテ](https://pan.baidu.com/s/1kE-gqRNK9POvk7gGFvdFvA)  <br>
 [いもーと特区 ～妹と結婚できるいい時代になりました～](https://pan.baidu.com/s/1smGt3YrMZ-Fs0UYtCJITMw)  <br>
 [僕らの世界に祝福を](https://pan.baidu.com/s/14KF1dhzv5ATyyyk50P-Hhw)  <br>
 [Re：birth colony -Lost azurite-](https://pan.baidu.com/s/1Yl4aIgFukS9iOEIghLCHFg)  <br>
@@ -84,7 +88,6 @@
 [はるとゆき、](https://pan.baidu.com/s/1PDqlGRN1BSNO-hk5-XvqFQ)  <br>
 [Pure Marriage ～赤い糸物語 ネコミミ編～](https://pan.baidu.com/s/1K30YIig3kga4L1E4f3Y9Cw)  <br>
 [君とつながる恋フラグ](https://pan.baidu.com/s/1nmDzSJ6iB1x6lcaGz4TsjA)  <br>
-[女友与我的恋爱日常（体验版）](https://pan.baidu.com/s/1K5cU--kWC6fjIg-dGfAvUA)  <br>
 [ロイヤルガーデン　～乙女に恋する皇子の戯曲～](https://pan.baidu.com/s/1qiq8q-a1WHvf1v4lddMQ7g)  <br>
 [ネコ神さまと、ななつぼし体验版](https://pan.baidu.com/s/1dsPVj3CbLca--Fp1bOj8uA)  <br>
 [ヤミと祝祭のサンクチュアリ](https://pan.baidu.com/s/1Z5wpkCT4jUMRFHDXrWDciQ)  <br>
@@ -92,11 +95,7 @@
 [百花繚乱エリクシル](https://pan.baidu.com/s/1zcNu01ERLDgV5hbgnOtgYQ)  <br>
 [ヤ・ク・ソ・ク☆ラブハーレム](https://pan.baidu.com/s/1kXZVu-Uwqogp9-pdZ2j6FA)  <br>
 [私があなたを護るための5つの約束～捨て勇者ひろいました](https://pan.baidu.com/s/16ZE4BsonVK1EJHqu65yCTQ)  <br>
-[GRISAIA Phantom Trigger Vol.1](https://pan.baidu.com/s/1314s8nzrz7Hhvn7kPZO3Gg)  <br>
-[GRISAIA Phantom Trigger Vol.2](https://pan.baidu.com/s/1VsjPa5jqAUqLRePaHIcGqQ)  <br>
 [いつかのメモラージョ ～ことのはアムリラート～](https://pan.baidu.com/s/1RzhoQ8cBgnF-OlLTf3L0yg)  <br>
-[はるとゆき、体验版](https://pan.baidu.com/s/1hAvxN1Xy4WVW69LNjlu4Yw)  <br>
-[KARAKARA2](https://pan.baidu.com/s/1fffDleuPbafwpwWgcvtkgQ)  <br>
 [王の耳には届かない！](https://pan.baidu.com/s/14QeKE263r1z0qXJm_1rcVA)  <br>
 [ハタラカナイはにーらいふ](https://pan.baidu.com/s/1z1qJGIHbz68hCoIJcCk3FQ)  <br>
 [新妻体验版](https://pan.baidu.com/s/1sMaMd3ShvWk3nR-idPFBCw)  <br>
@@ -148,7 +147,6 @@
 [君と恋する学園喫茶](https://pan.baidu.com/s/1jJg1upJNt6poGxZZXeuFBg)  <br>
 [PURELYxCATION](https://pan.baidu.com/s/1yUr81NgOnpyTaclAkY35CA)  <br>
 [さくらにかげつ](https://pan.baidu.com/s/1RTPX-0iRv-SA33j3Hom9HA)  <br>
-[NEKOPARA Extra](https://pan.baidu.com/s/1cBQ2Mxu-4XP8F7Wvh-eR0g)  <br>
 [レーシャル・マージ](https://pan.baidu.com/s/16nCZXMrAWvTLlN6ijAHgZw)  <br>
 [なまラブ](https://pan.baidu.com/s/1823oIxsk9g_S2fiVZ2ylBw)  <br>
 [ナマイキデレーション](https://pan.baidu.com/s/1MYvgk-qs53UnZyWyksDERg)  <br>
