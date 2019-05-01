@@ -5,8 +5,7 @@
 ## 汉化部分
 [【汉化】ぶらばん！管乐恋曲！](https://pan.baidu.com/s/1jIcOG-4AiN5RnUUM2lvW5A)  <br>
 [【汉化】相関遊戯 アニメーション](https://pan.baidu.com/s/1DkYhdWx-d47zp7sJOeOE5Q)  <br>
-[【共通＆新岛树奈线汉化】夜巡る、ボクらの迷子教室](https://pan.baidu.com/s/1dmjWkP6F3O0wuEbFvA5HTg)  <br>
-[双樱0.5汉化](https://pan.baidu.com/s/1H1taYiUU05lpU_LlgNbHjw)  <br>
+[【汉化】双樱0.5汉化](https://pan.baidu.com/s/1H1taYiUU05lpU_LlgNbHjw)  <br>
 [【汉化】Clover Day’s Plus](https://pan.baidu.com/s/1A8hnpbdVDT6bMRrqq2Oi6A)  <br>
 [【0.4汉化】J.Q.V人类救济部](https://pan.baidu.com/s/1FXJjXJljPLvqWnqCwAi3mA)  <br>
 [【汉化】Sweet☆Switch ～眉目传情～](https://pan.baidu.com/s/1mpZT5qC_ayMTBl13kkLK1w)  <br>
@@ -21,7 +20,6 @@
 [【汉化】托了未来孩子的福，我娶了五个老婆！？](https://pan.baidu.com/s/1MlGH500sQTW6ibv8Vol4Qw)  <br>
 [【汉化】桜ひとひら恋もよう汉化版](https://pan.baidu.com/s/17Ol0XhVK6HA2afW5TP8U8A)  <br>
 [【汉化】【简体中文】任性highspec](https://pan.baidu.com/s/1lkgvkrvPD-nj80ofrwbvyA)  <br>
-[三色△绘恋](https://pan.baidu.com/s/1U8j6w-tLNuyEblckSklPAA)  <br>
 [【汉化】G弦上的魔王720p重制版](https://pan.baidu.com/s/1DgjfphrVBNoY4LqB2Hj36g)  <br>
 [【汉化】茂伸-happy end-](https://pan.baidu.com/s/18qg3C4gpYQmMdtgDU9wY5Q)  <br>
 [【汉化】StarTRain](https://pan.baidu.com/s/1auYfd2MK2f0ueobrjJDMNQ)  <br>
