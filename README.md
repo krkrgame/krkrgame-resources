@@ -33,10 +33,9 @@
 [【汉化】月影的幻影-解放之羽-](https://pan.baidu.com/s/1NaPB4aIfiq9Lv6EXOg8YIQ)  <br>
 [【汉化】与小萝莉相思相爱的生活](https://pan.baidu.com/s/1iQ1mmO8c2qZGxx-DCnj6tw)  <br>
 [【汉化】闪闪发光的你～妖精美蓝变～](https://pan.baidu.com/s/1DKprLr5S29vUTeU5PKvU4Q)  <br>
-[【百度汉化】青い空のカミュ 体验版](https://pan.baidu.com/s/1uNJycVZZxtZwXop9XlWQcg)  <br>
 [【汉化】他与她与她的忠义](https://pan.baidu.com/s/1JgS-YVnPUG_GeBszk2plrA)  <br>
 [【汉化】双子洛丽塔后宫](https://pan.baidu.com/s/1euofuTHItjRyXvCIzOg2Ng)  <br>
-[与我恋爱的废材小恶魔](https://pan.baidu.com/s/1b5E2MszxaDFX2MZ6btc6jA)  <br>
+[【官中】与我恋爱的废材小恶魔](https://pan.baidu.com/s/1b5E2MszxaDFX2MZ6btc6jA)  <br>
 [【汉化】春音Alice＊Gram](https://pan.baidu.com/s/1PxcTlE94e0mr8-NyBA2CoA)  <br>
 [【官中】NEKOPARA Extra](https://pan.baidu.com/s/1cBQ2Mxu-4XP8F7Wvh-eR0g)  <br>
 [【汉化】爱莉娅嘉年华](https://pan.baidu.com/s/1B0Lz78d2p9o5IqJjH5ST8A)  <br>
@@ -45,7 +44,7 @@
 [【官中】GRISAIA Phantom Trigger Vol.2](https://pan.baidu.com/s/1VsjPa5jqAUqLRePaHIcGqQ)  <br>
 [【官中】KARAKARA2](https://pan.baidu.com/s/1fffDleuPbafwpwWgcvtkgQ)  <br>
 
-
+# ============================================================
 ## 生肉部分
 [きゃらぶれーしょん！～乙女は恋してキャラぶれる～](https://pan.baidu.com/s/1_ox_qkzZp2et0JSCBp5SEA)  <br>
 [ひとつ屋根の、ツバサの下で](https://pan.baidu.com/s/144Wwvf7Jb3y4aAN9iuIevw)  <br>
